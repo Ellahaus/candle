@@ -1,0 +1,104 @@
++++
+        
+author = "Our Writers"
+        
+title = "Electric Chair Know Your Meme"
+        
+date = 2020-11-09T21:27:47.780135
+        
++++
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/900/aec.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/900/aec.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/entries/icons/original/000/029/292/Screen_Shot_2019-04-15_at_10.55.52_AM.png)](https://i.kym-cdn.com/entries/icons/original/000/029/292/Screen_Shot_2019-04-15_at_10.55.52_AM.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/893/010.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/893/010.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/894/581.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/894/581.png) God Is A Woman | Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/897/f14.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/897/f14.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/896/fd1.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/896/fd1.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/898/087.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/898/087.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/entries/icons/original/000/033/717/cover9.jpg)](https://i.kym-cdn.com/entries/icons/original/000/033/717/cover9.jpg) Your Honor (Comic) | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/481/899/5f7.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/481/899/5f7.png) Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/120/528/d4f.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/120/528/d4f.png) Your Honor (Comic) | Know Your Meme
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.10.45-AM.png)](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.10.45-AM.png) Electric Chair: The New Meme For Giving Someone the Death Penalty
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1582989461743001)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1582989461743001) Electric Chair Memes - Home | Facebook
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/electric-chair-1-1024x512.jpg)](https://www.dailydot.com/wp-content/uploads/2019/04/electric-chair-1-1024x512.jpg) Electric Chair: The New Meme For Giving Someone the Death Penalty
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1582996968408917)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1582996968408917) Electric Chair Memes - Home | Facebook
+[ ![](https://i.kym-cdn.com/photos/images/list/001/481/893/010.png)](https://i.kym-cdn.com/photos/images/list/001/481/893/010.png) Electric Chair | Know Your Meme
+[ ![](https://i.pinimg.com/originals/33/79/f6/3379f6a8f1b42bf60b38a82a6dc0dd45.png)](https://i.pinimg.com/originals/33/79/f6/3379f6a8f1b42bf60b38a82a6dc0dd45.png) Looks like someone's getting more of whatever they want! | Fake Antiques  Roadshow Appraisals in 2020 | Roadshow, Antiques roadshow, Appraisal
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1618207044887909)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1618207044887909) Electric Chair Memes - Home | Facebook
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.19.05-AM.png)](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.19.05-AM.png) Electric Chair: The New Meme For Giving Someone the Death Penalty
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.24.58-AM.png)](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.24.58-AM.png) Electric Chair: The New Meme For Giving Someone the Death Penalty
+[ ![](https://pics.me.me/coroika-me-sitting-in-the-electric-chair-waiting-to-be-38553960.png)](https://pics.me.me/coroika-me-sitting-in-the-electric-chair-waiting-to-be-38553960.png) Me Sitting in the Electric Chair Waiting to Be Executed Why Is This So  Funny?  | Funny Meme on ME.ME
+[ ![](https://i.kym-cdn.com/entries/icons/facebook/000/020/009/Screen_Shot_2016-03-10_at_7.39.55_PM.jpg)](https://i.kym-cdn.com/entries/icons/facebook/000/020/009/Screen_Shot_2016-03-10_at_7.39.55_PM.jpg) Weird Facebook / Post-Ironic Facebook | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/list/001/481/897/f14.png)](https://i.kym-cdn.com/photos/images/list/001/481/897/f14.png) Electric Chair | Know Your Meme
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.31.38-AM.png)](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.31.38-AM.png) Electric Chair: The New Meme For Giving Someone the Death Penalty
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1083772348331384)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1083772348331384) Electric Chair Memes - Home | Facebook
+[ ![](https://i.imgflip.com/292yvy.jpg)](https://i.imgflip.com/292yvy.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.19.54-AM.png)](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-14-at-10.19.54-AM.png) Electric Chair: The New Meme For Giving Someone the Death Penalty
+[ ![](https://pics.me.me/the-electric-chair-itsshock-therapy-essentially-image-208264-49408951.png)](https://pics.me.me/the-electric-chair-itsshock-therapy-essentially-image-208264-49408951.png) The ELECTRIC CHAIR? ITS'SHOCK THERAPY ESSENTIALLY Image - 208264 | Megyn  Kelly Essentially | Know Your Meme | Megyn Kelly Meme on ME.ME
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/000/517/112/8b6.jpg)](https://i.kym-cdn.com/photos/images/newsfeed/000/517/112/8b6.jpg) Willy | Computer Reaction Faces | Know Your Meme
+[ ![](https://i.imgflip.com/3b56ra.jpg)](https://i.imgflip.com/3b56ra.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://i.redd.it/ox792tx3s6c31.jpg)](https://i.redd.it/ox792tx3s6c31.jpg) electric chair : memes
+[ ![](https://i.kym-cdn.com/photos/images/original/000/352/993/c08.jpg)](https://i.kym-cdn.com/photos/images/original/000/352/993/c08.jpg) Jail reason | Sheeeit | Know Your Meme
+[ ![](https://i.ytimg.com/vi/A6NCdO9bwK0/hqdefault.jpg)](https://i.ytimg.com/vi/A6NCdO9bwK0/hqdefault.jpg) ELECTRIC CHAIR meme - YouTube
+[ ![](https://i.ytimg.com/vi/xkPsjF5vdL8/hqdefault.jpg)](https://i.ytimg.com/vi/xkPsjF5vdL8/hqdefault.jpg) Electric Chair (Original) – Reaction Meme Twitter - YouTube
+[ ![](https://i.imgflip.com/3stmsh.jpg)](https://i.imgflip.com/3stmsh.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://media.tenor.com/images/8cf2e6fab6526ade816f7af6cd29d724/tenor.png)](https://media.tenor.com/images/8cf2e6fab6526ade816f7af6cd29d724/tenor.png) Electric Chair GIFs | Tenor
+[ ![](https://i.imgflip.com/31xask.jpg)](https://i.imgflip.com/31xask.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/000/447/045/91f.png)](https://i.kym-cdn.com/photos/images/newsfeed/000/447/045/91f.png) PSA on Alfred's arms | Getting Real Tired of Your Shit | Know Your Meme
+[ ![](https://i.pinimg.com/originals/04/a2/c3/04a2c3ee85ca2990f0964ce708457c07.jpg)](https://i.pinimg.com/originals/04/a2/c3/04a2c3ee85ca2990f0964ce708457c07.jpg) Pin on Kill La Kill
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/935/823/60d.jpg)](https://i.kym-cdn.com/photos/images/newsfeed/001/935/823/60d.jpg) Meet The Electricals | /r/AmongUsMemes | Among Us | Know Your Meme
+[ ![](https://i.imgflip.com/3ptl6q.jpg)](https://i.imgflip.com/3ptl6q.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://i.kym-cdn.com/photos/images/facebook/001/368/767/a2c.jpg)](https://i.kym-cdn.com/photos/images/facebook/001/368/767/a2c.jpg) The chair from a good meme this century | Bart Hits Homer With a Chair | Know  Your Meme
+[ ![](https://ahseeit.com//king-include/uploads/2018/12/46404607_924661807732304_6694094596900077372_n-3469821931.jpg)](https://ahseeit.com//king-include/uploads/2018/12/46404607_924661807732304_6694094596900077372_n-3469821931.jpg) Me sitting in the electric chair waiting to be executed - AhSeeit
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=10157158396363737)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=10157158396363737) Know Your Meme - Home | Facebook
+[ ![](https://i.imgflip.com/32ifwm.jpg)](https://i.imgflip.com/32ifwm.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://i.kym-cdn.com/editorials/icons/mobile/000/001/948/clean_design.jpg)](https://i.kym-cdn.com/editorials/icons/mobile/000/001/948/clean_design.jpg) 24 People Wondering, Actually, How Do You Clean That Properly? | Know Your  Meme
+[ ![](https://i.kym-cdn.com/photos/images/masonry/001/933/097/74b)](https://i.kym-cdn.com/photos/images/masonry/001/933/097/74b) God Is A Woman | Electric Chair | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/294/923/2b7.jpg)](https://i.kym-cdn.com/photos/images/newsfeed/001/294/923/2b7.jpg) last requests | Clickbait | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/original/001/871/208/0d2.png)](https://i.kym-cdn.com/photos/images/original/001/871/208/0d2.png) THIS IS REQUIEM | /b/ | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/930/450/886.jpg)](https://i.kym-cdn.com/photos/images/newsfeed/001/930/450/886.jpg) 32 Of The Top Meme Halloween Costumes From 2020 | Know Your Meme
+[ ![](https://i.pinimg.com/originals/46/bd/22/46bd2215c45f3744a0185c434d84e812.png)](https://i.pinimg.com/originals/46/bd/22/46bd2215c45f3744a0185c434d84e812.png) Bob. | Steven Universe | Steven universe fanart, Steven universe lapis,  Steven universe
+[ ![](https://i.pinimg.com/736x/cd/6e/7d/cd6e7da36610b0d8f4f6bced47453029.jpg)](https://i.pinimg.com/736x/cd/6e/7d/cd6e7da36610b0d8f4f6bced47453029.jpg) Trying to win Meowstic's heart | Pokémon in 2020 | Cute pokemon, Pokemon,  Pokemon images
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1083712681670684)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1083712681670684) Electric Chair Memes - Home | Facebook
+[ ![](https://i.chzbgr.com/full/9481782016/hF24B754B/stool-maectric-chair-vibra-massage-relieves-tension-1945-antique-electric-chair)](https://i.chzbgr.com/full/9481782016/hF24B754B/stool-maectric-chair-vibra-massage-relieves-tension-1945-antique-electric-chair) 28 Spicy Memes That Boast A Little Extra Dark Humor - Memebase - Funny Memes
+[ ![](https://cdn.digg.com/wp-content/uploads/2019/08/29185229/spongebob-imma-head-out-meme-header.jpg)](https://cdn.digg.com/wp-content/uploads/2019/08/29185229/spongebob-imma-head-out-meme-header.jpg) This Week's Best Memes, Ranked - Digg
+[ ![](https://i.pinimg.com/originals/46/ac/65/46ac651234cea4ff44b0d2d3c02e5a65.jpg)](https://i.pinimg.com/originals/46/ac/65/46ac651234cea4ff44b0d2d3c02e5a65.jpg) Image - 214051] | Team Fortress 2 | Team fortress 2 medic, Team fortress,  Team fortress 2
+[ ![](https://yt3.ggpht.com/a/AATXAJwr5gyTQvTMvRbtQIFlmsDFEao18hv1wLcCW1pK=s900-c-k-c0x00ffffff-no-rj)](https://yt3.ggpht.com/a/AATXAJwr5gyTQvTMvRbtQIFlmsDFEao18hv1wLcCW1pK=s900-c-k-c0x00ffffff-no-rj) Know Your Meme - YouTube
+[ ![](https://i.kym-cdn.com/entries/icons/mobile/000/005/482/50sspider-man-meme.jpg)](https://i.kym-cdn.com/entries/icons/mobile/000/005/482/50sspider-man-meme.jpg) 60's Spider-Man | Know Your Meme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/000/151/868/da7.png)](https://i.kym-cdn.com/photos/images/newsfeed/000/151/868/da7.png) 60's Spider-Man | Know Your Meme
+[ ![](https://i.imgflip.com/2azagj.jpg)](https://i.imgflip.com/2azagj.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-23-at-12.51.47-PM-458x512.png)](https://www.dailydot.com/wp-content/uploads/2019/04/Screen-Shot-2019-04-23-at-12.51.47-PM-458x512.png) The 'I'm Baby' Meme Is All About Being Comforted
+[ ![](https://www.memesmonkey.com/images/memesmonkey/0d/0d600c142275837ec95aa68cc9b7df77.jpeg)](https://www.memesmonkey.com/images/memesmonkey/0d/0d600c142275837ec95aa68cc9b7df77.jpeg) Mike pence electric Memes
+[ ![](https://cdn.vox-cdn.com/thumbor/cbfNSiF2WAC4GbHVQ5ubPgaMfhQ=/1400x1400/filters:format(jpeg)/cdn.vox-cdn.com/uploads/chorus_asset/file/13627544/acastro_181214_3140_gritty.0.jpg)](https://cdn.vox-cdn.com/thumbor/cbfNSiF2WAC4GbHVQ5ubPgaMfhQ=/1400x1400/filters:format(jpeg)/cdn.vox-cdn.com/uploads/chorus_asset/file/13627544/acastro_181214_3140_gritty.0.jpg) The best memes of 2018, according to The Verge staff - The Verge
+[ ![](https://i.pinimg.com/originals/d5/2c/ba/d52cba30076c6ba98ca84cd861abaed0.png)](https://i.pinimg.com/originals/d5/2c/ba/d52cba30076c6ba98ca84cd861abaed0.png) Amish Electric Chair: $8,000-$10,000 | Fake Antiques Roadshow Appraisals in  2020 | Antiques roadshow, Roadshow, Antiques
+[ ![](https://i.kym-cdn.com/entries/icons/original/000/032/012/froggy.jpg)](https://i.kym-cdn.com/entries/icons/original/000/032/012/froggy.jpg) Froggy Chair | Know Your Meme
+[ ![](https://i.imgflip.com/3jk5e6.jpg)](https://i.imgflip.com/3jk5e6.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/933/491/f7b.jpg)](https://i.kym-cdn.com/photos/images/newsfeed/001/933/491/f7b.jpg) 24 People Wondering, Actually, How Do You Clean That Properly? | Know Your  Meme
+[ ![](https://cdn.vox-cdn.com/thumbor/3w5onA8qYVRAcDfJUMuoRqN2Rno=/1400x0/filters:no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/13644384/sponge.jpg)](https://cdn.vox-cdn.com/thumbor/3w5onA8qYVRAcDfJUMuoRqN2Rno=/1400x0/filters:no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/13644384/sponge.jpg) The best memes of 2018, according to The Verge staff - The Verge
+[ ![](https://i.imgflip.com/1778hw.jpg)](https://i.imgflip.com/1778hw.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://i.kinja-img.com/gawker-media/image/upload/c_fit,fl_progressive,q_80,w_636/tvucvmirgi4ncm9sqbo6.jpg)](https://i.kinja-img.com/gawker-media/image/upload/c_fit,fl_progressive,q_80,w_636/tvucvmirgi4ncm9sqbo6.jpg) How Thomas Edison Used a Fake Electric Chair Execution Film to Fight the  Electricity War
+[ ![](https://static01.nyt.com/images/2019/01/20/magazine/20mag-FirstWords-1/20mag-FirstWords-1-videoSixteenByNineJumbo1600.png)](https://static01.nyt.com/images/2019/01/20/magazine/20mag-FirstWords-1/20mag-FirstWords-1-videoSixteenByNineJumbo1600.png) All the President's Memes - The New York Times
+[ ![](https://api.time.com/wp-content/uploads/2019/09/spongebob-memes.jpg)](https://api.time.com/wp-content/uploads/2019/09/spongebob-memes.jpg) Your Guide to the Best Spongebob Memes Across the Internet | Time
+[ ![](https://i.pinimg.com/originals/c8/75/a4/c875a4af2cb7c151ecf714c23a1b0d1e.gif)](https://i.pinimg.com/originals/c8/75/a4/c875a4af2cb7c151ecf714c23a1b0d1e.gif) Pin on Mlp
+[ ![](https://i.imgflip.com/z2pgx.jpg)](https://i.imgflip.com/z2pgx.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://www.theuniversity.review/assets/images/memes/galaxybrain.png)](https://www.theuniversity.review/assets/images/memes/galaxybrain.png) Can The Left Meme?
+[ ![](https://i.kym-cdn.com/entries/icons/mobile/000/035/581/vergil.jpg)](https://i.kym-cdn.com/entries/icons/mobile/000/035/581/vergil.jpg) Vergil | Know Your Meme
+[ ![](https://i.imgflip.com/20pfv5.jpg)](https://i.imgflip.com/20pfv5.jpg) electric chair Memes & GIFs - Imgflip
+[ ![](https://ahseeit.com//king-include/uploads/2020/10/thumb_119781076_3445168045543755_7936947261147047089_n-6777275335.jpg)](https://ahseeit.com//king-include/uploads/2020/10/thumb_119781076_3445168045543755_7936947261147047089_n-6777275335.jpg) Me sitting in the electric chair waiting to be executed - AhSeeit
+[ ![](https://media.tenor.com/images/66b5c69f6947cf9120ff2c2aae0a18f8/raw)](https://media.tenor.com/images/66b5c69f6947cf9120ff2c2aae0a18f8/raw) Electric Chair GIFs | Tenor
+[ ![](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1307471736068088)](https://lookaside.fbsbx.com/lookaside/crawler/media/?media_id=1307471736068088) Electric Chair Memes - Home | Facebook
+[ ![](https://reallifemag.com/wp-content/uploads/2018/01/Screen-Shot-2018-01-15-at-6.28.19-PM.png)](https://reallifemag.com/wp-content/uploads/2018/01/Screen-Shot-2018-01-15-at-6.28.19-PM.png) How to Do Things With Memes — Real Life
+[ ![](https://images.axios.com/c_fZ-i4ATR6M0p9WsvluSs2ise4=/2020/02/13/1581597090186.jpg)](https://images.axios.com/c_fZ-i4ATR6M0p9WsvluSs2ise4=/2020/02/13/1581597090186.jpg) Mike Bloomberg embraces the meme - Axios
+[ ![](https://i.chzbgr.com/original/9527701248/h94E29EBA/funny-meme-about-iphones-family-guy-me-tilts-my-phone-by-3-degrees-my-phone)](https://i.chzbgr.com/original/9527701248/h94E29EBA/funny-meme-about-iphones-family-guy-me-tilts-my-phone-by-3-degrees-my-phone) Cheezburger - family guy - I Can Has Cheezburger | Failblog | Memebase |  All In One Juicy Cheezburger - Funny Memes | Funny Pictures - Cheezburger
+[ ![](https://ahseeit.com//king-include/uploads/2019/01/thumb_49351811_514994122321925_7419168946588588239_n-8784782742.jpg)](https://ahseeit.com//king-include/uploads/2019/01/thumb_49351811_514994122321925_7419168946588588239_n-8784782742.jpg) Me sitting in the electric chair waiting to be executed - AhSeeit
+[ ![](https://static01.nyt.com/images/2020/05/08/fashion/08memers-1/08memers-1-articleLarge.jpg?quality=75&auto=webp&disable=upscale)](https://static01.nyt.com/images/2020/05/08/fashion/08memers-1/08memers-1-articleLarge.jpg?quality=75&auto=webp&disable=upscale) Memers are Taking Over TikTok - The New York Times
+[ ![](https://i.redd.it/crnga6j9elg01.jpg)](https://i.redd.it/crnga6j9elg01.jpg) only $399 : PewdiepieSubmissions
+[ ![](https://s1.r29static.com/bin/entry/e1e/720x960,85/1874802/image.webp)](https://s1.r29static.com/bin/entry/e1e/720x960,85/1874802/image.webp) Beyonce Kim Kardashian Mariah Celebrity Meme Origins
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/001/354/682/175.png)](https://i.kym-cdn.com/photos/images/newsfeed/001/354/682/175.png) Fukouna Shoujo 03 | Know Your Meme
+[ ![](https://ahseeit.com//king-include/uploads/2019/02/thumb_52327267_583333772139595_5968191403350131178_n-6142793335.jpg)](https://ahseeit.com//king-include/uploads/2019/02/thumb_52327267_583333772139595_5968191403350131178_n-6142793335.jpg) Me sitting in the electric chair waiting to be executed - AhSeeit
+[ ![](https://preview.redd.it/xg7dqseoshz31.png?auto=webp&s=1f3796d6e938ad145d2cb11f45f57f0c53b85d75)](https://preview.redd.it/xg7dqseoshz31.png?auto=webp&s=1f3796d6e938ad145d2cb11f45f57f0c53b85d75) Meme of the Day} Pufferfish Eating a Carrot : KnowYourMeme
+[ ![](https://i.kym-cdn.com/photos/images/newsfeed/000/162/016/1207146186011.jpg)](https://i.kym-cdn.com/photos/images/newsfeed/000/162/016/1207146186011.jpg) Image - 162016] | MS Paint Desktop Icons | Know Your Meme
+[ ![](https://img.buzzfeed.com/buzzfeed-static/static/2018-10/12/14/asset/buzzfeed-prod-web-06/sub-buzz-22930-1539370206-2.jpg?crop=1080%3A1080%3B260%2C0&resize=475%3A%2A)](https://img.buzzfeed.com/buzzfeed-static/static/2018-10/12/14/asset/buzzfeed-prod-web-06/sub-buzz-22930-1539370206-2.jpg?crop=1080%3A1080%3B260%2C0&resize=475%3A%2A) Here's The Horrifying History Of The Electric Chair That Might Soon Kill An  Inmate In Tennessee
+[ ![](https://upload.wikimedia.org/wikipedia/commons/thumb/9/97/Bongo_Cat_Redraw.png/220px-Bongo_Cat_Redraw.png)](https://upload.wikimedia.org/wikipedia/commons/thumb/9/97/Bongo_Cat_Redraw.png/220px-Bongo_Cat_Redraw.png) List of Internet phenomena - Wikipedia
+[ ![](https://i.ytimg.com/vi/8jYWizI6AOA/hqdefault.jpg?sqp=-oaymwEjCPYBEIoBSFryq4qpAxUIARUAAAAAGAElAADIQj0AgKJDeAE=&rs=AOn4CLDsE0E0bvj1bZqow_C3PYXRUc_hVQ)](https://i.ytimg.com/vi/8jYWizI6AOA/hqdefault.jpg?sqp=-oaymwEjCPYBEIoBSFryq4qpAxUIARUAAAAAGAElAADIQj0AgKJDeAE=&rs=AOn4CLDsE0E0bvj1bZqow_C3PYXRUc_hVQ) Know Your Meme - YouTube
+[ ![](https://images.news18.com/ibnlive/uploads/2017/12/kayode-ewumi.jpg)](https://images.news18.com/ibnlive/uploads/2017/12/kayode-ewumi.jpg) 20 Memes That Nearly Broke The Desi Internet In 2017
+[ ![](https://images.theconversation.com/files/322705/original/file-20200324-155620-45d3i.jpg?ixlib=rb-1.1.0&q=45&auto=format&w=1000&fit=clip)](https://images.theconversation.com/files/322705/original/file-20200324-155620-45d3i.jpg?ixlib=rb-1.1.0&q=45&auto=format&w=1000&fit=clip) 10 ways to spot online misinformation
